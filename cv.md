@@ -4,7 +4,7 @@
 ---
 ### Contact Information:
 
-**Phone:** +998 91 958 66 36<br>
+**Phone:** +998 88 677 02 74<br>
 **E-mail:** behzodjontuit1998@gmail.com<br>
 **Telegram:** @behzodjon<br>
 [LinkedIn]https://www.linkedin.com/in/behzod-xudoyberdi/)<br>
