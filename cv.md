@@ -24,6 +24,7 @@ Learner who is curious about gaining new knowledge and excited about coding. Cur
 - PHP
 - Git, GitHub
 - VS Code
+- TypeScript
 - Tailwind css(Css framework)
 - Laravel(PHP framework)
 
